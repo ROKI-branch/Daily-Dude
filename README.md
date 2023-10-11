@@ -1,2 +1,2 @@
-# Daily-Dude
-Sirvir na 229 virsion
+# Daily-Dudka
+IDK (v29 server)
